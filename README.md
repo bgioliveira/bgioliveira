@@ -1,6 +1,6 @@
-## Boas vindas ao meu perfil ❣️
+## Seja muito bem vinda (o) ao meu perfil 💮
 
-Meu nome é Brenda Gimenez 
+Meu nome é Brenda 🤍
 
 - Estou estudando na plataforma [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
