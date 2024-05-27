@@ -12,4 +12,4 @@ Meu nome é Brenda Gimenez
 
 @bgioliveira 
 
-![](https://media1.tenor.com/m/x4fU1yMhBx0AAAAC/chico-moedas-aquariano-nato.gif)
+![](https://media1.tenor.com/m/dnqHVp5NG0sAAAAC/gualichetas-gualicheta.gif)
